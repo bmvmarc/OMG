@@ -1,6 +1,0 @@
-# OMG
-I don't know what I'm doing...
-
-A sparrow is walking on the roof and carrying a box of snot!!!
-
-I'm not going anywhere, anywhere, anywhere...
